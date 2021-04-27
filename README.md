@@ -3,4 +3,4 @@
 
 ## Working
 
-- Now working on new ctf online judge development
+- Now playing apex legend
