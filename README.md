@@ -5,4 +5,4 @@
 
 ## About
 
-- Playing Apex Legend on Playstation 5
+- AFK until work
