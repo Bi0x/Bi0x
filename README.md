@@ -5,4 +5,4 @@
 
 ## About
 
-- AFK until work
+- AFK
